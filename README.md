@@ -5,4 +5,4 @@ Appreciation of the Johns Hopkins Biostatistics group for putting together aweso
 set up this account mainly because I'm taking their courses.
 I'm supposed to write something about myself. oh no. I was awesome at math in high school, full score on Olympic Math Test. My peers thought I was a genius. My favorite color is matcha green. favorite book is Common Sense by Leung Man-tao. I paint, but I won't admit it if you ask me. ballet makes me feel peaceful therefore I love it. I play tennis and flute, not at the same time. animal lover, seafood connoisseur.
 
-file:///C:/Users/lenovo/Documents/u=3374178758,3834606682&fm=21&gp=0.jpg
+
